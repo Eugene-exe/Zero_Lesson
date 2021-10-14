@@ -1,2 +1,2 @@
 # Zero_Lesson
-Hello Mates
+Hello Mates!
